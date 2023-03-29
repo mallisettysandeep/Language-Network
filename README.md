@@ -1,3 +1,6 @@
+website link languagenetwork.ccbp.tech/
+
+
 Online classes are virtual classes conducted through the internet, allowing students to attend courses from anywhere in the world. They have become increasingly popular in recent years, especially since the COVID-19 pandemic forced many schools and universities to switch to online learning.
 
 In online classes, students and teachers communicate through various online platforms, such as video conferencing software, online discussion forums, and email. Students can access course materials, lectures, assignments, and exams online, and often participate in group projects and discussions virtually.
